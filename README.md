@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kardex-willt
+- 👀 I’m interested in ... ASRS
+- 🌱 I’m currently learning ... AutoStore/FulfillX
+- 😄 Pronouns: ... he/him
+- ⚡ Fun fact: ... ewoks in Empire Strikes Back are speaking Tibetan sped up to sound different
